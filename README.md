@@ -15,4 +15,4 @@ I enjoy solving demanding operational problems, transforming legacy ops at AI sp
 #### Open to
 Project-based and part-time work · Remote · Available 9 AM–9 PM CET (Monday - Friday)
 
-[LinkedIn](your-link)
+[LinkedIn](https://www.linkedin.com/in/michael-arman-p/)
